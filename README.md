@@ -12,7 +12,7 @@
 
 - 🌱 I’m currently learning **New Technologies**
 
-- 💬 
+- 💬 Ask me
 
 - 📫 How to reach me **pasinduimesh385@gmail.com**
 </td>
